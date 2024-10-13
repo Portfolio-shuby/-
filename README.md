@@ -1,5 +1,5 @@
 # :pushpin: 귀행록 (Ghost Chronicles)
->게임 플레이 영상
+게임 플레이 영상
 >https://drive.google.com/file/d/15a_SWD6fFbhL8xN9SLPNUQ7QEfSvUfnc/view
 
 </br>
